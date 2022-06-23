@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @brendabonin
-- 👀 I’m interested in learn to program
+- 👀 My e-mail is brenda.galon@escola.pr.gov.br
 - 🌱 I’m currently learning to program
